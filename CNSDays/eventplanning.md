@@ -21,3 +21,5 @@ List of activities and names of students managing the activities during the even
 
 ### Adeel 19I-1869 interested in Post, Banners and Video Editing. Tools I use: Canva, Photoshop and Adobe Premiere. 
 ### Sample of my work (Poster): https://drive.google.com/file/d/1kHZAKoPVR78a_5__00UoEuSHDcwsjw4V/view?usp=sharing
+
+### Abdullah 19I-1772 interested in creating post (LinkedIn and Twitter) and publication. I'll help making logos, creating banners and promotional posts.
